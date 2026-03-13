@@ -1,0 +1,2 @@
+# sobre mim :
+Sou um estudante do Dom Miguel de Cervante no 3 ano do ensino médio com técnico, sou um aluno exemplo a ser seguido por todos os meus colegas de sala e de toda a escola, busco sempre as melhores notas e consigo facilmente o melhor desempenho academico, sempre sendo invejados por BETAS mogados pelas minhas habilidades espetaculares.
